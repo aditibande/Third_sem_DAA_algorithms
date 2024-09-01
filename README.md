@@ -1,0 +1,1 @@
+I am currently engaged in practicing various coding exercises as part of my coursework in the third semester. These exercises are integral to my academic development, providing hands-on experience with programming concepts and techniques that are essential for my field of study
